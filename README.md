@@ -1,3 +1,3 @@
 ## Hello World! 
 
-My name is sarahipj and I’ll use this webpage to share some very cool psychological facts with you!
+My name is sarahipj and I will use this webpage to share some very cool psychological facts with you!
